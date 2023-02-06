@@ -1,0 +1,1 @@
+# fmp-geekshubs-fsd-val-javascript06.02
